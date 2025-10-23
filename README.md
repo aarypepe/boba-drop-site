@@ -1,1 +1,1 @@
-Website about Boba, for $5
+Website about Boba
